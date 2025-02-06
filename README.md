@@ -1,0 +1,1 @@
+# jathans-daily-quotes-affirmations
