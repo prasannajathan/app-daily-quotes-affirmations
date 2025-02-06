@@ -1,1 +1,1 @@
-# jathans-daily-quotes-affirmations
+# Privacy policy and Terms and conditions for the app Daily Quotes and Affirmations
